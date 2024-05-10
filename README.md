@@ -20,4 +20,4 @@ Long live the source!
 在下是另一位前主导人, 但账号已经更换为@Umaru-Xi, 阁下可以直接致信umaru@umaru.science. 
 
 感谢阁下前来祭奠. 
-源比当永续! 
+源必当永续! 
